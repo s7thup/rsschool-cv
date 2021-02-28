@@ -1,6 +1,6 @@
 1. Denis Kondratyev
 2. My discord- densyara.My telegram- @densyara.My email- s7thup@gmail.com
-3. Short about me: Im 25 years old.Im from izhevsk. im wanna be a frontend developer
+3. Short about me: Im 25 years old.Im from izhevsk. im wanna be a frontend developer, cause its interesting.
 4.   
 5.   
 6.   
